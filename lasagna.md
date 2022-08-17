@@ -14,7 +14,7 @@
 * 1 1/2 tsp dried basil
 * 1/2 tsp fennel seeds
 * 1 tsp Italian seasoning
-4 tbsp fresh parsley, chopped
+* 4 tbsp fresh parsley, chopped
 * 12 lasagna noodles
 * 16 oz ricotta cheese
 * 1 egg
